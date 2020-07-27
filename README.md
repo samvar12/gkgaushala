@@ -1,2 +1,0 @@
-# gkgaushala
-My first page
